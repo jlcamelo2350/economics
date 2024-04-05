@@ -1,1 +1,1 @@
-Estudos gerais de economia com ênfase em macroeconoia, microeconomia, inovação e métodos estatísticos
+Estudos gerais de economia com ênfase em macroeconomia, microeconomia, inovação e métodos estatísticos
